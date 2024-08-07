@@ -1,7 +1,7 @@
 
-Er sah ihn stürzen, trinken\
-Und sinken tief ins Meer,\
-die Augen täten ihm sinken,\
-Trank nie einen Tropfen mehr.
+So rouse your long-haired army\
+And march without delay\
+In mass against the Trojans\
+Great Troy is yours today!
 
 
